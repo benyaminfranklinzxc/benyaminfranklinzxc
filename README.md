@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on football match
 - 📫 How to reach me in discordt and twitter
 - 😄 Pronouns:  mr
-- ⚡ Fun fact:  pecinta sepak bola selamanya
+- ⚡ Fun fact:  forever football lover
 
 <!---
 benyaminfranklinzxc/benyaminfranklinzxc is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
